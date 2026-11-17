@@ -1,0 +1,3 @@
+# Orlando Slab Leaks: Why They Hide and How to Spot One Early
+
+A slab leak hides under your concrete floor, so by the time you see water, it has been leaking for weeks. The early signs are quieter: a warm spot on the floor, a water bill that jumps for no reason, the sound of running water when every tap is off, or damp carpet in one corner of a room. Orlando's heat and humidity make it worse — moisture under a slab feeds mould fast. If two of those signs show up together, get a leak detection check before you tear up a floor on a guess. Finding it early is a repair; finding it late is a renovation. Learn the warning signs: https://waterdamagerestorationorlando.us
