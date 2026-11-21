@@ -1,0 +1,5 @@
+# Orlando's Summer Storms: The First Hour After Water Gets In
+
+Orlando's summer storms arrive fast, and when water gets in, the first hour decides how bad the damage will be. Do these things in order: first, make it safe - if water is near outlets or the panel, switch the power off at the breaker and stay out of standing water. Second, stop the source if you can - a roof leak will not stop in a storm, but a burst pipe or a failed AC drain can be shut off. Third, move what matters: electronics, papers, rugs and furniture off the wet floor, because the longer they sit in water the less can be saved. Fourth, start removing water - towels, a wet vacuum, anything - and open the room up for airflow. Then call a restoration professional the same day: water that sits overnight soaks into the subfloor and the wall base, and by the second day mould has a head start. The storm is over in an hour; the drying takes days, and the first hour is when you win or lose them.
+
+Learn the warning signs: https://waterdamagerestorationorlando.us
